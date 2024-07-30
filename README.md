@@ -1,2 +1,0 @@
-# Massazhist.ru
-Купи плз
